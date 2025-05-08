@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @noeliareina
 - 👀 I’m interested in Psychology, UX Research, Cognitive Science, Environmental Science, Nature, Astrology & Behavioral Patterns, Health, Creative Writing, Music, Content Creation and Sociology.
-- 🌱 I’m currently learning Data Analytics and Communication Skills (I finished the Psychology University degree and I have studies about International Business)
+- 🌱 I am Junior Data Analyst. Also, I have knowledge about human behavior (I finished the Psychology University degree) and I have studies about International Business.
 - 💞️ I’m looking to collaborate on Social Projects, Global Impact, Internships Around the World.
 - 📫 How to reach me: svqnoelia@gmail.com
 
